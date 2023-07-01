@@ -1,2 +1,2 @@
-Lets go it
-gambare
+Lets do it.
+Gambare Gambare!!!!
